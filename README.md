@@ -129,7 +129,6 @@ Growth & Marketing Operations Strategist | Project Manager
 📩 marymenas@gmail.com  
  [LinkedIn](https://www.linkedin.com/in/marisol-mena-4a358447/)
 
-*Additional project documentation and full report available 
-upon formal request (NDA required).*
+*Additional project documentation upon formal request (NDA required).*
 
 
